@@ -1,4 +1,3 @@
-![Screenshot (92)](https://github.com/RuchiAgrawal9186/CodeClause/assets/112552732/9bbfbff3-5d2f-4d34-bdff-ffc2835aab9a)
 
 ![Screenshot (93)](https://github.com/RuchiAgrawal9186/CodeClause/assets/112552732/ae0e2047-7342-46b1-be75-3b85194338ce)
 
